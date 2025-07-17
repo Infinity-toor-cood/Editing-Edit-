@@ -1,2 +1,2 @@
 # Editing-Edit-
-Edit your pictures and enjoy 
+Edit your pictures and enjoy .
